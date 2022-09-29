@@ -1,6 +1,6 @@
 # QandA
 
-- Quick Q&amp;A with price action! Cheers. -
+- Quick Q&amp;A with price action! Cheers.
 
 
 ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! ! !
